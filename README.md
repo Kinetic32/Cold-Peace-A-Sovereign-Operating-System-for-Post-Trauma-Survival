@@ -1,0 +1,2 @@
+# Cold-Peace-A-Sovereign-Operating-System-for-Post-Trauma-Survival
+AI-augmented governance (Trinity Branch system: Empathy/Logic/Ethics) Designed for those who’ve survived systems that demanded their disintegration. Fork. Adapt. Burn what doesn’t serve you. Inspired by constitutional AI, cognitive behavioral hacks, and the radical act of self-authoring reality. Not a cult. Not a therapy replacement.
